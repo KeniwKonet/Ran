@@ -1,4 +1,4 @@
-# 🇳🇬 RAN — Re-Orientation Advocacy of Nigeria
+# 🇳🇬 RAN — Re-Orientation Advocacy of Nigeria.
 
 > **Building Sound Minds, Saving Lives and Livelihoods.**
 
